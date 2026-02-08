@@ -1,2 +1,0 @@
-# gamesense-rack
-gamesense crack
